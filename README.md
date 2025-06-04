@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on ... PYTHON PROJECTS fro BEGINNERS
 - 📫 How to reach me ... VISIT MY LINKEDIN PROFILE
 - 😄 Pronouns: ... SHE/HER
-- ⚡ Fun fact: ... I LOVE WATCHING
 
 <!---
 Teppp816/Teppp816 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
